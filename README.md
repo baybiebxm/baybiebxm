@@ -1,4 +1,4 @@
-### Hello, I'm baybiebam 👋
+### Hello, I'm Thaksaporn Lachaisong, or you can call me Bam. 👋
 
 I'm a fourth-year student at the Faculty of Information Technology :computer: from King Mongkut University of Technology Thonburi (KMUTT). 
 
